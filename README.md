@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LEMG980929MMNNZB02
+LEMG980929MMNNZB02
